@@ -22,6 +22,14 @@ Nội tạng động vật chứa nhiều photpho có thể làm tăng các tri�
 
 Đau xương khớp nên sử dụng thực phẩm gì:
 
+Những thứ tốt cho đau xương khớp:
+
+Mướp Đắng: 
+Mướp đắng là một nguồn thực phẩm cung cấp dồi dào lượng vitamin K cho cơ thể. Loại vitamin này rất quan trọng đối với những bệnh nhân bị viêm khớp dạng thấp, giúp giảm đau nhức xương khớp, tăng cường sức khỏe của xương, kháng viêm và tham gia vào quá trình làm đông máu của cơ thể.
+
+Ba Kích: 
+Ba kích chứa các chất hoạt chất có khả năng chống viêm, có thể giúp giảm tình trạng viêm và đau trong xương khớp. Hơn nữa, các anthraquinon và choline có chứa trong rượu ba kích giúp hạn chế nguy cơ bị loãng xương, đau khớp và cải thiện tình trạng tê bì chân tay một cách hiệu quả.
+
 Cá giàu chất béo lành mạnh
 Tỏi
 Gừng
